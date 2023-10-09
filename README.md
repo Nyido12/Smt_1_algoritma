@@ -1,0 +1,1 @@
+# Smt_1_algoritma
